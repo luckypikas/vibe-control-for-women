@@ -217,5 +217,4 @@ relationship advice for women, female instincts, vibe control, stop getting play
 Hashtags:
 #luckypikaspayhipstore #LoveQnA #VibeControlForWomen #relationshipadvice #datingtips #femininepower #boundaries #selfrespect #toxicrelationships #personadevelopment
 
-When you’re ready, I can now draft the short, punchy Poe bot description for NOLA (what users see in the Poe “About this bot” box) that matches this README and points people toward LoveQnA + the ebook.
 
